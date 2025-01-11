@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **dharmikjain645@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_MjArRUfvhe6x5IdZYgs_88eNQGJIhpL/view?usp=sharing](https://drive.google.com/file/d/1_MjArRUfvhe6x5IdZYgs_88eNQGJIhpL/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1QCp6_ZkmNWCWwnsrgRpXkj67XYbiAY8a/view]
 
 - ⚡ Fun fact **I Think I am the Devil😈**
 
